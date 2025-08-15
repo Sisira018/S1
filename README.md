@@ -1,3 +1,3 @@
 # S1 COURSE PROJECTS
-Course projects donre in B-Tech first semester
+Course projects done in B-Tech first semester
 
